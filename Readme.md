@@ -1,5 +1,5 @@
-# Satyajit Ray Films and Filmmaking
-Instructor : Aditi Nath Sarkar
+# Satyajit Ray Films and Filmmaking - HM 479
+[Instructor : Aditi Nath Sarkar](http://www.der.org/films/filmmakers/aditi-nath-sarkar.html)
 
 ## Movies
 1. [Nayak - The Hero, 1966](https://www.youtube.com/watch?v=pK5hvo8xws0)
